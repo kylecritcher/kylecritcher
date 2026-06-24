@@ -2,7 +2,7 @@
 
 **Tabletop RPG writer and homebrew designer based in Charlotte, NC.**
 
-I write about Dungeons & Dragons, homebrew design, and the craft of running games at the table — the kind of stuff that actually happens when the dice hit the felt. Game master, world-builder, and occasional overthinker of monster stat blocks.
+I write about Dungeons & Dragons, homebrew design, and the craft of running games at the table — the kind of stuff that actually happens when the dice hit the table. Game master, world-builder, and shenanagins expert.
 
 Essays and homebrew live at **[kylecritcher.com](https://www.kylecritcher.com)** and on **[Substack](https://kylecritcher.substack.com)**.
 
